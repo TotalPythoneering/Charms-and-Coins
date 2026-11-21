@@ -1,5 +1,5 @@
 # 🪎 3D Printed Charms & Coins
-"I've got a million of them ... maybe. 😏🤔"
+"You've Got This."
 
 ## Backstory
 We've all several missions in life... From collecting quotes, recipes, 'tech, we each might also enjoy [playing for keeps](https://www.youtube.com/watch?v=-nZWOszrP0o)?
