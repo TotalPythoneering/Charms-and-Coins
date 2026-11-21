@@ -65,9 +65,14 @@ And yes, a red king award better than the orange pawn achievement ... 'cuz you'r
 
 Take my idea - please ... and you're welcome.
 
+---
 
- 
+ <img src="2026/2026_11_18_rounded_6_ft_apart_48px.svg.png_zCharm.png" width="300" alt="Centered image">
+<a href="https://www.thingiverse.com/thing:7437263">2026_11_18: The Coin & Charm for "Social Distancing"</a>
 
+---
   
 <img src="2026/2026_11_21_rounded_military_tech_48px.svg.png_zCharm.png" width="300" alt="Centered image">
 <a href="https://www.thingiverse.com/thing:7438276/files">2026_11_21: Coin & Charm Award</a>
+
+---
